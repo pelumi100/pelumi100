@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me anything about music theory
 - 📫 How to reach me on my email
 - 😄Him.
-- ⚡ Fun fact and sexy
+- ⚡ I am sexy
 -->
